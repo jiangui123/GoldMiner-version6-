@@ -1,0 +1,1 @@
+# GoldMiner-version6-
